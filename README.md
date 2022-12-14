@@ -1,0 +1,1 @@
+# dinastiaam0r0sa
